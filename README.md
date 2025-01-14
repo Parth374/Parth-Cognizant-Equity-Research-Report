@@ -1,0 +1,1 @@
+# Parth-Cognizant-Equity-Research-Report
